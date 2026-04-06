@@ -50,7 +50,7 @@ Alongside development, I help brands grow online through **SEO strategy** and **
 
 ### 📫 Connect With Me
 - 📧 Email: biic.web1@gmail.com  
-- 🌐 Portfolio: https://jubayer-portfolio.vercel.app/  
+- 🌐 Portfolio: https://jubayerportfolio.vercel.app/  
 - 📘 Facebook: https://www.facebook.com/jubayerahamed82  
 
 ---
